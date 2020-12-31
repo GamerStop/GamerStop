@@ -3,7 +3,7 @@
 # Hello You! 👋
 
 
-**I'm Jonathan Levy aka GamerStop 👀.**
+**I'm GamerStop 👀.**
 
 **I'm in eighth grade 👨‍🎓.**
 
